@@ -1,4 +1,4 @@
-
+vip Script for restaurant tycoon 3 is the best restaurant tycoon 3 Script, featuring auto-upgrade and auto-farm. Safe and powerful for all your needs.
 
 
 
